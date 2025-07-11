@@ -1,3 +1,5 @@
-Rafael Sebastian Terceros Cespedes 
-Me encuentro estudiando Ingenieria Informatica 💻 "Me gusta el entorno y aprender nuevas herrramientas"
-" 1% mejor cada dia "
+Rafael Sebastian Terceros
+Apacionado por la tecnologia, el desarrollo web 🧠
+Me encuentro estudiando Ingenieria Informatica  💻 "interesado en el mundo de la tecnologia y aprender nuevas herrramientas"
+📍Cochabamba-Bolivia 
+" 1% mejor cada dia 💪 "
