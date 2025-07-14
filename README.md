@@ -20,7 +20,6 @@
 
 ## 📫 Conecta conmigo:
 - 📍 Ubicación: Cochabamba, Bolivia
-- ✉️ [Opcional: tu correo si deseas incluirlo]
 - 🌱 "Aprendiendo algo nuevo todos los días"
 
 > 💪 *“No se trata de ser el mejor, sino de ser mejor que ayer.”*
